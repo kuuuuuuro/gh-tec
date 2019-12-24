@@ -1,2 +1,5 @@
-# gh-tec
-技術共有用です
+# ITD 技術共有
+
+（＾ω＾）
+
+https://kuuuuuuro.github.io/gh-tec/
